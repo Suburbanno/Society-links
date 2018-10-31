@@ -52,3 +52,14 @@
 - Desenvolvimento de Jogos 3D com Unity
 		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=339e9d9e-b0d1-0000-14da-c9cd0b6ad53c&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Desenvolvimento%20de%20jogos%203D%20com%20Unity%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
 		- [Yandex.DiskPart1](https://yadi.sk/d/RKkRhXPK3aNGgR) - [Yandex.DiskPart2](https://yadi.sk/d/-c38KoCgoQdxNw)
+- Web Master Front-End
+		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=a79e9d9e-e0de-0000-14da-c33f340c6f59&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Web%20Master%20Front-End%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
+- JavaScript Completo
+		- [Yandex.Disk](https://yadi.sk/d/eNlrKlWF3Zf3BR)
+		- [CloudMailRU](https://cloud.mail.ru/public/Kf7W/ZEX2LdLq7)
+		- [Torrent](https://drive.google.com/file/d/1Zmy5EzZ27JJNCOoGCjaOFdgZImwPRlBO/view)
+- JavaScript Ninja
+		 -  [Yandex.Disk](https://yadi.sk/d/uRyDOy1E3ZMtcD)
+		 - [Torrent](https://drive.google.com/file/d/14V4TTCd8dCpJpryBQwGEgAveEJC17Kcs/view)
+- Automação Front End com NPM
+		- [CloudMailRU](https://cloud.mail.ru/public/E7SG/UjjkdfGWt)
