@@ -33,6 +33,12 @@
 		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=4d9d9d9e-80b2-0000-14da-cfe843285946&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Reda%C3%A7%C3%A3o%20ENEM%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
 - Português ENEM
 		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=9e9d9d9e-501e-0000-14da-c8d676b327fb&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Portugu%C3%AAs%20ENEM%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
+- Literatura ENEM
+		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=cd9d9d9e-3036-0000-14da-c13b3293932e&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Literatura%20ENEM%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
+- História ENEM
+		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=e29d9d9e-f0f4-0000-1317-436903cf0882&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Hist%C3%B3ria%20ENEM%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
+- Química ENEM
+		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=f29d9d9e-10a1-0000-14da-c1057ff1c32a&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Qu%C3%ADmica%20ENEM%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
 - Curso Preparatório LPI
 		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=df9c9d9e-3020-0000-1317-415aff299348&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Curso%20Preparat%C3%B3rio%20LPI%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B) 
 - Photoshop Básico ao Avançado
