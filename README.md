@@ -63,3 +63,6 @@
 		 - [Torrent](https://drive.google.com/file/d/14V4TTCd8dCpJpryBQwGEgAveEJC17Kcs/view)
 - Automação Front End com NPM
 		- [CloudMailRU](https://cloud.mail.ru/public/E7SG/UjjkdfGWt)
+- Curso Bootstrap Essencial
+		- [Yandex.Disk](https://yadi.sk/d/0Skga8hplZriqg)
+		- [CloudMailRU](https://cloud.mail.ru/public/JCQU/HgenTzbkf)
