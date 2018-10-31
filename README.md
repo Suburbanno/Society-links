@@ -66,3 +66,6 @@
 - Curso Bootstrap Essencial
 		- [Yandex.Disk](https://yadi.sk/d/0Skga8hplZriqg)
 		- [CloudMailRU](https://cloud.mail.ru/public/JCQU/HgenTzbkf)
+- Fundamentos de Ethical Hacking
+		- [Drive](https://drive.google.com/drive/folders/0Bwai0kYN-ieKeGN2eEZIdXlXYlk)
+		- [YandexDiskPart1](https://yadi.sk/d/INRIn_0ssEC8Ng) - [YandexDiskPart2](https://yadi.sk/d/WptTUs7e3Y9QYV)
