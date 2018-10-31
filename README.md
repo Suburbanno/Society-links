@@ -1,5 +1,14 @@
 # Links
+ - Nenhum conteúdo é sob minha responsabilidade ou da society.ga.
+ - Links Offs não serão atualizados.
+-  Caso algum arquivo necessite de senha para extrair: society.ga
 
+
+> *Todo o conteúdo aqui disposto pode ser facilmente encontrado na internet por intermédio de sites e fontes diversas que habilitaram o
+> recurso de divulgação, portanto – SOB HIPÓTESE ALGUMA – não nos é
+> outorgada a responsabilidade pela manutenção e hospedagem. Tal fato –
+> obviamente – ISENTA a Administração de quaisquer responsabilidades ou
+> punições*
 ## Jogos
 
  -  Capcom Beat ‘Em Up Bundle
