@@ -111,3 +111,29 @@
 - Pacote Alura
 		- [Torrent](https://drive.google.com/file/d/1PuxnalLnqDPpEsWV4EZhyEPGMg54m3zA/view)
 		- [Yandex.Diskpart1](https://yadi.sk/d/mKdyHfFo3aMdMb) - [Yandex.Diskpart2](https://yadi.sk/d/9VlRzaVK3Uh6PQ) - [Yandex.Diskpart3](https://yadi.sk/d/nHKdHrzB3UhJbz) - [Yandex.Diskpart4](https://yadi.sk/d/nMzsrVfy3UkJRp) - [Yandex.Diskpart5](https://yadi.sk/d/Pflmklda3Umtt2) - [Yandex.Diskpart6](https://yadi.sk/d/FrAu5SMH3UnajK)
+- Curso Desenvolvedor Web
+		- [Yandex.Disk](https://yadi.sk/d/vYHvH33V_MywKw)
+- Curso PHP Zero ao Profissional
+		- [Yandex.DiskPart1](https://yadi.sk/d/iklgbS4k3UJWN4) - [Yandex.DiskPart2](https://yadi.sk/d/AVqdVam-3UNHj6) - [Yandex.DiskPart3](https://yadi.sk/d/Qe5qMtJb3ULUSz)
+- CSS Flexbox
+		- [CloudMailRU](https://cloud.mail.ru/public/LBWw/2NUjz31oU)
+- Curso Tipografia Avançada
+		- [Yandex.Disk](https://cloud.mail.ru/public/GPqS/LqXCaGyqt)
+- WordPress Como CMS
+		- [CloudMailRU](https://cloud.mail.ru/public/FYmj/3PpvwNNjX)
+- Curso Web Design
+		- [CloudMailRU](https://cloud.mail.ru/public/K5R4/29QCQdUDS)
+- CSS Avançado
+		- [CloudMailRU](https://cloud.mail.ru/public/BiG6/FocAwRwz7)
+- CSS com SASS
+		- [CloudMailRU](https://cloud.mail.ru/public/Gu4q/WXWNkvmtn)
+- Curso JavaScript e jQuery
+		- [CloudMailRU](https://cloud.mail.ru/public/GDEm/XXYBG5qKW)
+- Bootstrap 4
+		- [CloudMailRU](https://cloud.mail.ru/public/LTsP/xk8KkGJFk)
+- CSS Grid Layout
+		- [CloudMailRU](https://cloud.mail.ru/public/HZ9Q/LXgnGPg5v)
+- Java e Orientação a Objetos Udemy
+		- [Yandex.Disk](https://yadi.sk/d/wTDJWwmy3SmRvQ)
+		- [Mediafire](http://www.mediafire.com/file/u4d4ea8mmdk6eh2/Curso+de+Java+e+Orienta%C3%A7%C3%A3o+a+Objetos+-+Udemy.zip)
+		- [Drive](https://drive.google.com/file/d/1g4yvzyQi-2Jk9SAA9iONJyBHe_i_yX97/edit)
