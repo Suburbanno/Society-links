@@ -83,3 +83,15 @@
 		- [Drive](https://drive.google.com/drive/folders/0B5OFc2rGh_EZOHdOYTNxSGo5bGM)
 - Curso de Inglês do Mairo Vergara
 		- [Yandex.Disk](https://yadi.sk/d/lA51N2pE3TCrqq)
+- Curso Linux Security
+		- [Yandex.Disk](https://yadi.sk/d/uSBvbjii3aMdLk)
+		- [CloudMailRU](https://cloud.mail.ru/public/B1sT/zMkwqUY6j)
+- Curso START (SAGA)
+		- [Drive](https://drive.google.com/drive/folders/1L49jqSfIlRaRtksUcLNZO_odSBpU2Ycf)
+- Automação Front End com NPM
+		- [CloudMailRU](https://cloud.mail.ru/public/E7SG/UjjkdfGWt)
+- Curso Cientista de Dados
+		- [Yandex.Disk](https://yadi.sk/d/sn-ZLiCXyKBaQw)
+		- [CloudMailRU](https://cloud.mail.ru/public/5BYU/ZnUZNvVJ5)
+- Ruby on Rails
+		- [Yandex.Disk](https://yadi.sk/d/ZLMetmHUxn1exg)
