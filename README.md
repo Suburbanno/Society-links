@@ -158,3 +158,6 @@
 - Curso Webpack
 		- [Yandex.Disk](https://yadi.sk/d/aChpHsaX3aUgAB)
 		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=fd7e9e9e-e0a0-0000-1431-bb8dfcd8f0bd&RootFolder=%2fpersonal%2fhjpogk78z_get365_pw%2fDocuments%2fSociety%20%28arquivos%29%2fCurso%20Webpack%20%28society%2ega%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
+- Curso Afiliado de Sucesso
+		- [Yandex.Disk](https://yadi.sk/d/Lsvz9HM7zCbfaw)
+		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=248d9e9e-60f1-0000-14da-c38e06f0e29b&RootFolder=%2fpersonal%2fhjpogk78z_get365_pw%2fDocuments%2fSociety%20%28arquivos%29%2fCurso%20Afiliado%20de%20Sucesso%20%28society%2ega%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
