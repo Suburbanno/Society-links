@@ -35,7 +35,7 @@
 - The King of Fighters 97 Global Match
 		- [CloudMailRU](https://cloud.mail.ru/public/JSvA/cCTaFcLTf)
 		- [Yandex.Disk](https://yadi.sk/d/Q2BiFys33U6fGb)
-- Cupehead
+- Cuphead
 		- [Yandex.Disk](https://yadi.sk/d/pqt7Fro_3Noxmu)
 
 ## Cursos
