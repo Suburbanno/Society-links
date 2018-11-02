@@ -35,61 +35,61 @@
 ## Cursos
 
 - Biologia ENEM
-		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=c59c9d9e-e083-0000-14da-c7982b3d5a4d&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Biologia%20ENEM%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B) 
+		- [OneDrive](https://kutt.it/fI0Jc9) 
 - Matemática ENEM
-		 - [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=279d9d9e-00ac-0000-14da-c1591eea8e48&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Matem%C3%A1tica%20ENEM%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B) 
+		 - [OneDrive](https://kutt.it/SHDxGs) 
 - Redação ENEM
-		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=4d9d9d9e-80b2-0000-14da-cfe843285946&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Reda%C3%A7%C3%A3o%20ENEM%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
+		- [OneDrive](https://kutt.it/9jfdA4)
 - Português ENEM
-		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=9e9d9d9e-501e-0000-14da-c8d676b327fb&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Portugu%C3%AAs%20ENEM%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
+		- [OneDrive](https://kutt.it/BtJ7ym)
 - Literatura ENEM
-		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=cd9d9d9e-3036-0000-14da-c13b3293932e&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Literatura%20ENEM%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
+		- [OneDrive](https://kutt.it/2ABjfG)
 - História ENEM
-		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=e29d9d9e-f0f4-0000-1317-436903cf0882&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Hist%C3%B3ria%20ENEM%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
+		- [OneDrive](https://kutt.it/c7GhZ1)
 - Química ENEM
-		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=f29d9d9e-10a1-0000-14da-c1057ff1c32a&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Qu%C3%ADmica%20ENEM%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
+		- [OneDrive](https://kutt.it/4J58DU)
 - Física ENEM
-		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=159e9d9e-e03e-0000-14da-cd49690e79d1&RootFolder=%2fpersonal%2fhjpogk78z_get365_pw%2fDocuments%2fSociety%20%28arquivos%29%2fF%C3%ADsica%20ENEM%20%28society%2ega%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
+		- [OneDrive](https://kutt.it/Kahoa9)
 - Curso Preparatório LPI
-		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=df9c9d9e-3020-0000-1317-415aff299348&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Curso%20Preparat%C3%B3rio%20LPI%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B) 
+		- [OneDrive](https://kutt.it/UHDuwv) 
 - Photoshop Básico ao Avançado
-		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=f89c9d9e-704b-0000-14da-c5944abe6b60&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Photoshop%20B%C3%A1sico%20ao%20Avan%C3%A7ado%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
-		- [Yandex.Disk](https://yadi.sk/d/eNeUa06cjAnM8Q) 
+		- [OneDrive](https://kutt.it/rhysZX)
+		- [Yandex.Disk](https://kutt.it/uFf6qo) 
 - Curso Pentest Profissional
-		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=0c9d9d9e-9064-0000-14da-cb0ced9ce944&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Curso%20Pentest%20Profissional%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
-		-  [Yandex.Disk](https://yadi.sk/d/Wt7-zegAstweOw)
+		- [OneDrive](https://kutt.it/2g3Tq7)
+		-  [Yandex.Disk](https://kutt.it/hDvkIJ)
 - Desenvolvimento de Jogos 3D com Unity
-		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=339e9d9e-b0d1-0000-14da-c9cd0b6ad53c&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Desenvolvimento%20de%20jogos%203D%20com%20Unity%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
-		- [Yandex.DiskPart1](https://yadi.sk/d/RKkRhXPK3aNGgR) - [Yandex.DiskPart2](https://yadi.sk/d/-c38KoCgoQdxNw)
+		- [OneDrive](https://kutt.it/2lOsdo)
+		- [Yandex.DiskPart1](https://kutt.it/A26zia) - [Yandex.DiskPart2](https://kutt.it/EhYj6l)
 - Web Master Front-End
-		- [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=a79e9d9e-e0de-0000-14da-c33f340c6f59&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Web%20Master%20Front-End%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
+		- [OneDrive](https://kutt.it/wdJim7)
 - JavaScript Completo
-		- [Yandex.Disk](https://yadi.sk/d/eNlrKlWF3Zf3BR)
-		- [CloudMailRU](https://cloud.mail.ru/public/Kf7W/ZEX2LdLq7)
-		- [Torrent](https://drive.google.com/file/d/1Zmy5EzZ27JJNCOoGCjaOFdgZImwPRlBO/view)
+		- [Yandex.Disk](https://kutt.it/UmxOIF)
+		- [CloudMailRU](https://kutt.it/uoR3sQ)
+		- [Torrent](https://kutt.it/MfcaTC)
 - JavaScript Ninja
-		 -  [Yandex.Disk](https://yadi.sk/d/uRyDOy1E3ZMtcD)
-		 - [Torrent](https://drive.google.com/file/d/14V4TTCd8dCpJpryBQwGEgAveEJC17Kcs/view)
+		 -  [Yandex.Disk](https://kutt.it/gYQ4jD)
+		 - [Torrent](https://kutt.it/JEbol7)
 - Automação Front End com NPM
-		- [CloudMailRU](https://cloud.mail.ru/public/E7SG/UjjkdfGWt)
+		- [CloudMailRU](https://kutt.it/Bg8EYk)
 - Curso Bootstrap Essencial
-		- [Yandex.Disk](https://yadi.sk/d/0Skga8hplZriqg)
-		- [CloudMailRU](https://cloud.mail.ru/public/JCQU/HgenTzbkf)
+		- [Yandex.Disk](https://kutt.it/xOxb6F)
+		- [CloudMailRU](https://kutt.it/rGheGw)
 - Fundamentos de Ethical Hacking
-		- [Drive](https://drive.google.com/drive/folders/0Bwai0kYN-ieKeGN2eEZIdXlXYlk)
-		- [YandexDiskPart1](https://yadi.sk/d/INRIn_0ssEC8Ng) - [YandexDiskPart2](https://yadi.sk/d/WptTUs7e3Y9QYV)
+		- [Drive](https://kutt.it/NnUrbq)
+		- [YandexDiskPart1](https://kutt.it/JENFLk) - [YandexDiskPart2](https://kutt.it/iDxogN)
 - Curso do Whindersson
-		- [Onedrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=52a09d9e-80d6-0000-14da-c832171b5c20&RootFolder=%2fpersonal%2fhjpogk78z_get365_pw%2fDocuments%2fSociety%20%28arquivos%29%2fCurso%20do%20Whindersson%20%28society%2ega%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
-		- [Drive](https://drive.google.com/drive/folders/0B5OFc2rGh_EZOHdOYTNxSGo5bGM)
+		- [Onedrive](https://kutt.it/bO8y4u)
+		- [Drive](https://kutt.it/j1XpCs)
 - Curso de Inglês do Mairo Vergara
-		- [Yandex.Disk](https://yadi.sk/d/lA51N2pE3TCrqq)
+		- [Yandex.Disk](https://kutt.it/cZKbU2)
 - Curso Linux Security
-		- [Yandex.Disk](https://yadi.sk/d/uSBvbjii3aMdLk)
-		- [CloudMailRU](https://cloud.mail.ru/public/B1sT/zMkwqUY6j)
+		- [Yandex.Disk](https://kutt.it/sy9cUj)
+		- [CloudMailRU](https://kutt.it/RjLxJW)
 - Curso START (SAGA)
-		- [Drive](https://drive.google.com/drive/folders/1L49jqSfIlRaRtksUcLNZO_odSBpU2Ycf)
+		- [Drive](https://kutt.it/HGd9pw)
 - Automação Front End com NPM
-		- [CloudMailRU](https://cloud.mail.ru/public/E7SG/UjjkdfGWt)
+		- [CloudMailRU](https://kutt.it/kARsNl)
 - Curso Cientista de Dados
 		- [Yandex.Disk](https://yadi.sk/d/sn-ZLiCXyKBaQw)
 		- [CloudMailRU](https://cloud.mail.ru/public/5BYU/ZnUZNvVJ5)
