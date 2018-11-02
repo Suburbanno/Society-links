@@ -30,7 +30,13 @@
 - Mega Man X Collection
 		- [Drive](https://kutt.it/VLrbp7) - [DriveOpção2](https://kutt.it/pWtB4A)
 		- [Torrent](https://kutt.it/jIRYNg)
-
+- SEGA Genesis Classics
+		- [Yandex.Disk](https://yadi.sk/d/b0IgQlFm3Wigyj)
+- The King of Fighters 97 Global Match
+		- [CloudMailRU](https://cloud.mail.ru/public/JSvA/cCTaFcLTf)
+		- [Yandex.Disk](https://yadi.sk/d/Q2BiFys33U6fGb)
+- Cupehead
+		- [Yandex.Disk](https://yadi.sk/d/pqt7Fro_3Noxmu)
 
 ## Cursos
 
@@ -137,3 +143,16 @@
 		- [Yandex.Disk](https://yadi.sk/d/wTDJWwmy3SmRvQ)
 		- [Mediafire](http://www.mediafire.com/file/u4d4ea8mmdk6eh2/Curso+de+Java+e+Orienta%C3%A7%C3%A3o+a+Objetos+-+Udemy.zip)
 		- [Drive](https://drive.google.com/file/d/1g4yvzyQi-2Jk9SAA9iONJyBHe_i_yX97/edit)
+- Curso UI Design
+		- [CloudMailRU](https://cloud.mail.ru/public/4Vr1/n2AkUjuzm)
+		- [Torrent](https://drive.google.com/file/d/1EiWhaKjsivcL8XRqteiHkHYt0wI1U1tU/view)
+- Curso UX Design
+		- [CloudMailRU](https://cloud.mail.ru/public/8rce/MWRF1NF3g)
+		- [Torrent](https://drive.google.com/file/d/18zwc56bYm41OiLNOowPfybp8oBkcqpvm/view)
+- Curso Wireshark
+		- [Yandex.Disk](https://yadi.sk/d/eNZB98Ou3SWZhL)
+- Python para Hackers
+		- [Yandex.Disk](https://yadi.sk/d/pUHgmPUGg6L9rw)
+- Pacotão WordPress
+		- [Yandex.Disk](https://yadi.sk/d/zYWDoZdqZRrYTg)
+		
