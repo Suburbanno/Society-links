@@ -12,24 +12,24 @@
 ## Jogos
 
  -  Capcom Beat ‘Em Up Bundle
-		 - [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=8c9b9d9e-4075-0000-14da-cf6d3dee04e7&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Capcom%20Beat%20Em%20Up%20Bundle%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B) 
-		 - [Torrent](https://drive.google.com/file/d/1fEbzTOzqUgIIqrAyhWTHzizuR-7awGZF/view)
+		 - [OneDrive](https://kutt.it/0SVz9N) 
+		 - [Torrent](https://kutt.it/gzDzo6)
 - Dragon Ball FighterZ
-        - [Yandex.Disk](https://yadi.sk/d/4KdpjpHo3Z5mZg) 
-        - [Torrent](https://drive.google.com/file/d/1Fn1GeMCDW1Rz4-HixpyfoewCzvmA1nbD/view)
+        	- [Yandex.Disk](https://kutt.it/Bbyc5a) 
+        	- [Torrent](https://kutt.it/FxzXdo)
  - Devil May Cry HD Collection
-		 - [OneDrive](https://guanghou-my.sharepoint.com/personal/hjpogk78z_get365_pw/Documents/Forms/All.aspx?slrid=0c9c9d9e-30d3-0000-14da-cfc6fb302512&RootFolder=/personal/hjpogk78z_get365_pw/Documents/Society%20%28arquivos%29/Devil%20May%20Cry%20HD%20Collection%20%28society.ga%29&FolderCTID=0x01200098E3DCEFD03E7A4B88D41655C574701B)
-		 - [Torrent](https://drive.google.com/file/d/1aIwNJoOA9I3pdRtMNzB4ab_2g5amvBVV/view)
+		 - [OneDrive](https://kutt.it/GMKSAY)
+		 - [Torrent](https://kutt.it/xlWR5i)
 - Bloodstained Curse of the Moon
-		 - [Yandex.Disk](https://yadi.sk/d/jfh7Z5a-3YypAC)
-		 - [Torrent](https://drive.google.com/file/d/14BvDqv-4AVvbk7nKnWof8zlAS6JInXkC/view)
-		 - [CloudMailRU](https://cloud.mail.ru/public/8xNE/mRgiEntnw)
+		 - [Yandex.Disk](https://kutt.it/dSvPVW)
+		 - [Torrent](https://kutt.it/N4O416)
+		 - [CloudMailRU](https://kutt.it/3VXDbH)
 - Max Payne 3 Complete Edition
-		- [Drive](https://drive.google.com/drive/folders/1P6sDsfi2aD4Ac0gXZQc4Ich_DcpfZf0P) - [Crack](https://drive.google.com/file/d/1PEpClyq-J4WMj5sGtsWArlJREu0joxFT/view)
-		- [Torrent](https://drive.google.com/file/d/1W0d8YbCwqJgEetiaJb7ue43bTDB36d67/view)
+		- [Drive](https://kutt.it/xIKgpb) - [Crack](https://kutt.it/GJdNlK)
+		- [Torrent](https://kutt.it/7ICN4v)
 - Mega Man X Collection
-		- [Drive](https://drive.google.com/file/d/1oVDuNLOoJfZMx43OaGcdtT71NO-Uiw8-/view) [- DriveOpção2](https://drive.google.com/file/d/1jse26d6b1PmjgHEKt99a-rtmI7ol_D2U/view)
-		-  [Torrent](https://drive.google.com/file/d/1hY4N2mZhTzgZ-DWc9GaspkPbcJl2LAHk/view)
+		- [Drive](https://kutt.it/VLrbp7) - [DriveOpção2](https://kutt.it/pWtB4A)
+		- [Torrent](https://kutt.it/jIRYNg)
 
 
 ## Cursos
