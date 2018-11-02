@@ -95,3 +95,19 @@
 		- [CloudMailRU](https://cloud.mail.ru/public/5BYU/ZnUZNvVJ5)
 - Ruby on Rails
 		- [Yandex.Disk](https://yadi.sk/d/ZLMetmHUxn1exg)
+- Curso de Python
+		- [Yandex.Disk](https://yadi.sk/d/QEq1qypXB8KaEQ)
+		- [CloudMailRU](https://cloud.mail.ru/public/8Q1i/mz7e6zmSs)
+- Curso Excel Para Negocios
+		- [Yandex.Disk](https://yadi.sk/d/BhA_wMxg3Zf5EA)
+		- [Drive](https://drive.google.com/drive/folders/1jOUmpVY4nVYF4J2yM97pX4olBmUSX87v)
+- C# Orientado a Objetos
+		- [Yandex.Disk](https://yadi.sk/d/5XALMXZUfbq2SA)
+		- [CloudMailRU](https://cloud.mail.ru/public/MQqo/guHTegtnV)
+		- [Torrent](https://drive.google.com/file/d/1-jfSvLKJ-q329oZteYQI9bTn8_5LyUrK/view)
+- Git e Github na Vida Real
+		- [Yandex.Disk](https://yadi.sk/d/siKa7gC53Zf2mE)
+		- [CloudMailRU](https://cloud.mail.ru/public/Ewoc/encb9yd2b)
+- Pacote Alura
+		- [Torrent](https://drive.google.com/file/d/1PuxnalLnqDPpEsWV4EZhyEPGMg54m3zA/view)
+		- [Yandex.Diskpart1](https://yadi.sk/d/mKdyHfFo3aMdMb) - [Yandex.Diskpart2](https://yadi.sk/d/9VlRzaVK3Uh6PQ) - [Yandex.Diskpart3](https://yadi.sk/d/nHKdHrzB3UhJbz) - [Yandex.Diskpart4](https://yadi.sk/d/nMzsrVfy3UkJRp) - [Yandex.Diskpart5](https://yadi.sk/d/Pflmklda3Umtt2) - [Yandex.Diskpart6](https://yadi.sk/d/FrAu5SMH3UnajK)
