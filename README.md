@@ -173,3 +173,6 @@
 - Curso Docker
 		- [Yandex.Disk](https://yadi.sk/d/bq_TMvfiBbiSYQ)
 		- [CloudMailRU](https://cloud.mail.ru/public/MKHo/4zN95mN6k)
+- Curso Firewall pfSense
+		- [CloudMailRU](https://cloud.mail.ru/public/Efgv/5huaucGbM)
+		- [Yandex.Disk](https://yadi.sk/d/RDRuc-xBrvmxWg)
