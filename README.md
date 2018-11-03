@@ -9,6 +9,7 @@
 > outorgada a responsabilidade pela manutenção e hospedagem. Tal fato –
 > obviamente – ISENTA a Administração de quaisquer responsabilidades ou
 > punições*
+
 ## Jogos
 
  -  Capcom Beat ‘Em Up Bundle
