@@ -176,3 +176,5 @@
 - Curso Firewall pfSense
 		- [CloudMailRU](https://cloud.mail.ru/public/Efgv/5huaucGbM)
 		- [Yandex.Disk](https://yadi.sk/d/RDRuc-xBrvmxWg)
+- Curso Russo Sem Mestre
+		-  [Yandex.Disk](https://yadi.sk/d/z1m3zpe3cIcCBg)
