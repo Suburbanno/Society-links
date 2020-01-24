@@ -178,3 +178,14 @@
 		- [Yandex.Disk](https://yadi.sk/d/RDRuc-xBrvmxWg)
 - Curso Russo Sem Mestre
 		-  [Yandex.Disk](https://yadi.sk/d/z1m3zpe3cIcCBg)
+- Curso Completo de Alemão
+		-  [Yandex.DiskPart1](https://yadi.sk/d/gVLDUaXE3UE7D9) - [Yandex.DiskPart2](https://yadi.sk/d/B7dNTCjV3UEN5b)
+- Curso de Italiano
+		-  [Yandex.Disk](https://yadi.sk/d/vzPgQJrj3UJbyU)
+                - [Torrent](https://drive.google.com/file/d/1bwJVjyw0FFJ9FdC7k7MQGq-9o5P3j6Oi/view)  
+
+- Curso de Alemão
+		- [CloudMailRU](https://cloud.mail.ru/public/FXYd/WnLuDiPKb)
+- Curso de Francês
+		-  [Yandex.DiskPart1](https://yadi.sk/d/ek5NoR-F3UDuXP) - [Yandex.DiskPart2](https://yadi.sk/d/yAQg4HWG3UDyM6)
+		- [Drive](https://drive.google.com/file/d/0B8eTDY4CnV4YSzAySnN1TVdySUk/view)
